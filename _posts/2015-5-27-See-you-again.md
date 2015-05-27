@@ -1,7 +1,10 @@
 See you again
-By:Wiz Khalifa, Charlie Puth
+
+By: Wiz Khalifa, Charlie Puth
+
 Lyrics:
-[Charlie Puth:]
+
+Charlie Puth:
 It's been a long day without you, my friend
 And I'll tell you all about it when I see you again
 We've come a long way from where we began
@@ -9,7 +12,7 @@ Oh, I'll tell you all about it when I see you again
 hen I see you again
 (Hey)
 
-[Wiz Khalifa:]
+Wiz Khalifa:
 Damn, who knew?
 All the planes we flew
 Good things we've been through
@@ -28,17 +31,17 @@ How can we not talk about family when family's all that we got?
 Everything I went through you were standing there by my side
 And now you gon' be with me for the last ride
 
-[Charlie Puth:]
+Charlie Puth:
 It's been a long day without you, my friend
 And I'll tell you all about it when I see you again (I see you again)
 We've come a long way (yeah, we came a long way) from where we began (you know we started)
 Oh, I'll tell you all about it when I'll see you again (let me tell you)
-When I'll see you again<p>
+When I'll see you again
 
 (Aah oh, aah oh
 Wooooh-oh-oh-oh-oh-oh)
 
-[Wiz Khalifa:]
+Wiz Khalifa:
 {Yeah}
 First you both go out your way
 And the vibe is feeling strong
@@ -57,7 +60,7 @@ How can we not talk about family when family's all that we got?
 Everything I went through you were standing there by my side
 And now you gon' be with me for the last ride
 
-[Charlie Puth:]
+Charlie Puth:
 So let the light guide your way, yeah
 Hold every memory as you go
 And every road you take, will always lead you home, ooh ooo oh
